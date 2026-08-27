@@ -3,9 +3,8 @@ B.S. in Biological Sciences
 & Earth and Environmental Sciences 
 at Seoul National University | 2020.03~2024.08 (cum laude)
 
-Currently doing a research internship at 
-the Developmental Cognitive Neuroscience Laboratory, 
-Department of Brain and Cognitive Sciences, Seoul National University
+Currently doing a master's in Bioengineering at Stanford University
+& research at the Moore Lab
 
 My [LinkedIn profile](https://linkedin.com/in/doyeon-kim-2938a5264)
 
